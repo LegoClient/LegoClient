@@ -1,3 +1,3 @@
-### Soon, the storm well come.
+### hi just a reminder that kirai is a fucking child that has to much time on his hands. thanks for looking at something i joked with, about a YEAR ago. go you kirai, youre fucking smart!
 
-build number: 1102
+build number: kirai fat mom
